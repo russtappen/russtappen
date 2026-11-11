@@ -3,9 +3,7 @@
 
 locke ⋆ eighteen 
 <br>
-any pronouns ⋆ unlabeled 
-<br>
-34 ⋆ introject heavy system
+any pronouns ⋆ system 
 <br>
 29.09.26 ⋆ taken by my lucas
 <br>
