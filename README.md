@@ -1,13 +1,11 @@
 <div align="center">
-[https://i.imgur.com/bw3X97I.gif][(https://pin.it/5IRhywfNe)](https://pin.it/2G6yez74V)
+  <img width="540" height="300" alt="image" src="https://github.com/user-attachments/assets/fc8bffe1-52ae-4c91-b1be-a30995ba5ce1" />
 
+locke | eighteen <br>
 
+any pronouns | unlabeled <br>
 
-locke | eighteen
+34 | introject heavy system <br>
 
-any pronouns | unlabeled
-
-introject heavy system
-
-29.09.26 | taken by my lucas
+29.09.26 | taken by my lucas <br>
 
