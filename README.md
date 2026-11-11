@@ -1,6 +1,6 @@
-
-![](https://i.imgur.com/bw3X97I.gif#center)
 <div align="center">
+https://i.imgur.com/bw3X97I.gif
+
 locke | eighteen
 
 any pronouns | unlabeled
